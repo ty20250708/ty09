@@ -12,6 +12,6 @@
 使用“日本AV免会员观看”或“高清无水印”等关键词，快速找到相关视频。
 注意安全，确保设备有防病毒保护，避免不安全的网络环境。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ty20250708/ty09 ）</span>
 
 
